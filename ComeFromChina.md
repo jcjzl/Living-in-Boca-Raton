@@ -6,4 +6,11 @@ Perhaps we would never come to Boca Raton if our daughter, Munks, isn’t here. 
 
 
 
-​    
+We come from Beijing, China. Last time to visit Boca is 3 years ago, Spring festival of 2015. We arrived Boca in midnight, 7 Oct, lived in a homestay before her defense. After 6 days, we move to her appartment and enjoy the whole 20 days happy family life.
+
+
+
+She is always busy even though she has finished the defense, write back to paper reviewers to explain the arguments, applicate a research funding, looking for a post doctoral position and so on. As her mom, I can’t give any help except cooking some traditional Chinese dishes which are  her favorite.         
+
+
+
