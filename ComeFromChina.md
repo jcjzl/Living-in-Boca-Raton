@@ -18,4 +18,4 @@ Chinese believe in that food is God, so wherever they move to, they will bring t
 
 
 
-[shopping list](chinatown.jpg)
+![shopping list](chinatown.jpg)
