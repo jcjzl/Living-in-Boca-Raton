@@ -16,7 +16,7 @@ She was always busy even though she had finished the defense, to write back to p
 
 Chinese believe in that food is God, so wherever they move to, they will bring the traditional food to the new place. There is a Chinatown in Fort Lauderdale, a town in south of Boca Raton. Once the family got together, the top priority is go to Chinatown for shopping. As the saying goes, smart housewife can’t cook a meal without rice.
 
-![chinatown1](chinatown_20181014_131125.jpg "Chinatown in Fort Lauderdale, Florida")
+![chinatown1](chinatown_20181014_131125.jpg) "Chinatown in Fort Lauderdale, Florida")
 
 
 
