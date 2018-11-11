@@ -12,6 +12,12 @@ Wheat gluten is made from gluten, the protein of wheat. Washing wheat flour doug
 
 Before cooking, the wheat gluten should be soaked in water for several hours until it’s getting soft. Like sponge, the wheat gluten is porous. When cooking, the broth with full of taste fill in the hole and the gluten become delicious.
 
+
+
+From 2013 to 2017, we three family members were on vegetarian diet and wheat gluten is a kind of good resource of protein. It can be co-cooked with mushroom, skin of tofu, black fungus, white fungus and some kinds of dry vegetables such as lily flower.
+
+
+
 ## Fried Round Gluten 
 
 1. 
