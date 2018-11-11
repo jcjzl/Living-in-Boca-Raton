@@ -32,6 +32,8 @@ Chinese believe in that food is God, so wherever they move to, they will bring t
 
 
 
+These photoes was taken by Lu(路, means Road), Munks’s dad and surely my husband. He like to take picture and regard recording events as his duty.
+
 
 
 All of these food materials will be cooked to dishes.
@@ -39,3 +41,4 @@ All of these food materials will be cooked to dishes.
 
 
 Food can recall one’s memories about the past, especially the happy feeling of childhood. My duty is to change these materials to dishes and let family feels happy.
+
