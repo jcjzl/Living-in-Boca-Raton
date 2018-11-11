@@ -1,5 +1,6 @@
 theme: jekyll-theme-midnight
 title: Living in Boca Raton
 show_downloads: false
+google_analytics: false
 github:
   repository_url: https://jcjzl.github.io
