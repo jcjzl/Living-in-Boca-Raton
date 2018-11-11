@@ -22,15 +22,15 @@ Chinese believe in that food is God, so wherever they move to, they will bring t
 
 
 
-![chinatown2](chinatown_20181014_135926.jpg)
-
-Shopping cart full of food materials
+![chinatown2](chinatown_20181014_135926.jpg) Shopping cart full of food materials
 
 
 
-![shopping list](chinatown_20181111_101527.jpg)
 
-Shopping list with bilingual items
+
+![shopping list](chinatown_20181111_101527.jpg) Shopping list with bilingual items
+
+
 
 
 
