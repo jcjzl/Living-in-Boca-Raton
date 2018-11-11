@@ -18,7 +18,7 @@ Chinese believe in that food is God, so wherever they move to, they will bring t
 
 ![chinatown1](chinatown_20181014_131125.jpg)
 
-^Chinatown in Fort Lauderdale, Florida
+^Chinatown in Fort Lauderdale, Florida^
 
 
 
