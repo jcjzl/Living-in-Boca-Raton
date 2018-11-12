@@ -31,3 +31,8 @@ Like dehydrated gluten, the fry round gluten is made of fermented gluten. Round 
 
 
 As a kind of substitute of meat, fry gluten can be cooked with some vegetables, or fill some meatballs into the fry gluten balls and stew them.  
+
+
+
+## Wood Ear
+
