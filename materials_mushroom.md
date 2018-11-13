@@ -8,9 +8,8 @@ In supermarket, shiitake may be fresh or dry. Fresh shiitake can be cooked direc
 
 
 
-![Fresh Shiitake](shiitake.jpg) 
-
-​	*Fresh Shiitake*
+![Fresh Shiitake](shiitake.jpg)
+*Fresh Shiitake*
 
 
 
