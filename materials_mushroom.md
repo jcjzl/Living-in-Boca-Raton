@@ -37,7 +37,7 @@ Neither nose nor tongue can get any special feeling from wood ear whether it has
 
 ## Tremella(银耳)
 
-In Chinese “银” means silver, a color nearly white. Tremella is also called white wood ear because its  shape looks like a wood ear, so the wood ear usually is called black wood ear.
+In Chinese “银” means silver, a color nearly white. Tremella is also called white wood ear because its  shape looks like the wood ear, so the wood ear is usually called black wood ear.
 
 ![Tremella](tremella.png)
 *Tremella*
