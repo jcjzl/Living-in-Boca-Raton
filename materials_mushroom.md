@@ -31,7 +31,7 @@ We can’t see the fresh wood ear in market. Farmers collect the fresh wood ears
 
 
 
-Neither nose nor tongue can get some special feeling from wood ear whether it has been cooked. Why should we eat them now that we can’t feel anything from them？Except to make the dishes colourful, the most important reason is that wood ear will help to improve our health. You can find a long list of benefit of wood ear from internet. 
+Neither nose nor tongue can get any special feeling from wood ear whether it has been cooked. Why should we eat them now that we can’t feel anything from them？Except to make the dishes colourful, the most important reason is that wood ear will help to improve our health. You can find a long list of benefit of wood ear from internet. 
 
 
 
