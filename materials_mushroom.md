@@ -9,22 +9,20 @@ In supermarket, shiitake may be fresh or dry. Fresh shiitake can be cooked direc
 
 
 ![Fresh Shiitake](shiitake.jpg)
-
 *Fresh Shiitake*
 
 
 
 ![Dried Shiitake](Dried_Shiitake.jpg)
-
 *Dry Shiitake*
 
 
 
-Shiitake is seldom cooked solely, it usually be cooked with other ingredients, such as chicken, vegetalbes and other mushroom. In vegetarian diet, shiitake can take place of meat, It’s a kind of source of protein. 
+Shiitake is seldom cooked solely, it's usually cooked with other ingredients, such as chicken, vegetalbes and other mushroom. In vegetarian diet, shiitake can take the place of meat, It’s a kind of source of protein. 
 
 ## Wood Ear(木耳)
 
-Wood ear is a kind of fungus, it grows at the stem of dead wood. It looks like the ear of human so Chinese call it MuEr(木耳, 木 means wood and 耳 means ear).
+Wood ear is a kind of fungus, it grows at the stem of dead wood. It looks like the ear of human, in Chinese, it is called 木耳(Mu Er), 木 means wood and 耳 means ear.
 
 ![Living Wood Ear](wood-ear_living.jpg)
 *Living Wood Ear*
