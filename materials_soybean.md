@@ -17,4 +17,8 @@ There contained some elements of local water and soil in tofu. A person may be d
 
 
 
+Tofu can be cooked alone or with other ingredients. You can get various dishes by using different cooking method, such as salad, frying, soup, stew and so on. 
+
+
+
  
