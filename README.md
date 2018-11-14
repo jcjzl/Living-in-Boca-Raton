@@ -6,5 +6,5 @@
 
 [Materials of Chinese Food:Mushroom](materials_mushroom.md)
 
-[Materials of Chinese Food:Soybean and Its Procudt](materials_soybean.md)
+[Materials of Chinese Food:Soybean and Its Procudts](materials_soybean.md)
 
