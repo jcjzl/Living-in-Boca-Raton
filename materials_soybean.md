@@ -6,7 +6,7 @@ Soybean is a gift of nature. It contains the complete protein. It can be made in
 
 ## Tofu
 
-**Tofu** is made from soy milk. Mix the boiling soy milk with coagulant, package the mixture with cotton gauze, press the package with weight while cooling, after the mixture cooled, the mixture becomes tofu. Making tofu is a traditional profession in China, some special processing crafts usually be passed in family members. 
+**Tofu** is made from soy milk. Mix the boiling soy milk with coagulant, package the mixture with cotton gauze, press the package with weight while cooling, after the mixture cooled, the mixture becomes tofu. Making tofu is a traditional profession in China, some special processing crafts only be passed in family members. 
 
 ![Tofu](tofu.jpeg)
 *Common and magic food: Tofu*
@@ -21,4 +21,8 @@ Tofu can be cooked alone or with other ingredients. You can get various dishes b
 
 
 
- 
+## Tofu skin
+
+During the process of making tofu, when the soy milk was heated, some light materials float to the surface and form a piece of film which is called tofu skin. It is rich in protein and oil with the texture of meat or mushroom. It can serves as meat in vegetarian diet. 
+
+![Tofu Skin](tofu_skin.jpeg)*Tofu skin*
