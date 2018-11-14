@@ -1,4 +1,4 @@
-# Materials of Chinese Food:Soybean and its Product
+# Materials of Chinese Food:Soybean and its Products
 
 Soybean is a gift of nature. It contains the complete protein. It can be made into many kinds of products to meet the needs of different people and different dishes. In China, common soybean products include tofu(豆腐), soy milk(豆浆), tofu skin(豆腐皮), soy sauce(酱油), soybean paste(豆酱), fermented bean curd(腐乳) and so on. They can be used as ingredient or served as condiment. 
 
