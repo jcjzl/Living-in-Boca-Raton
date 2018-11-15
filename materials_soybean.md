@@ -13,7 +13,7 @@ Soybean is a gift of nature. It contains the complete protein. It can be made in
 
 
 
-There contained some elements of local water and soil in tofu. A person may be dyspepsia when he/she go to a new place where is far away from hometown. He/she should eating some local tofu to ease the feeling of uncomfortable. 
+Tofu contains some elements of local water and soil. A person may be dyspepsia when he/she goes to a new place where is far away from hometown. He/she may eat some local tofu to ease the feeling of uncomfortable. 
 
 
 
@@ -26,3 +26,7 @@ Tofu can be cooked alone or with other ingredients. You can get various dishes b
 During the process of making tofu, when the soy milk was heated, some light materials float to the surface and form a piece of film which is called tofu skin. It is rich in protein and oil with the texture of meat or mushroom. It can serves as meat in vegetarian diet. 
 
 ![Tofu Skin](tofu_skin.jpeg)*Tofu skin*
+
+
+
+Befor cooking, tofu skin should be soaked in warm water for about an hour. It is suitable for stew.     
