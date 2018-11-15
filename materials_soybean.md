@@ -30,3 +30,15 @@ During the process of making tofu, when the soy milk was heated, some light mate
 
 
 Befor cooking, tofu skin should be soaked in warm water for about an hour. It is suitable for stew.     
+
+
+
+## Dried Yuba Stick
+
+Tofu skin is the first layer that is lifted off from soy milk, it is eventrally be dried to a piece. Below the first layer, there still are some floaters, lift and hang them up for drying, then we get the yuba sticks.  
+
+![Drying Yuba Sticks](yuba_sticks.jpeg)*Drying Yuba Sticks*
+
+
+
+Either tofu skin or yuba stick, they are all existing for about 500 years. As an agricultural nation, Chinese people are living on the soybean and its products.
