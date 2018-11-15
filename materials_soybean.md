@@ -35,10 +35,23 @@ Befor cooking, tofu skin should be soaked in warm water for about an hour. It is
 
 ## Dried Yuba Stick
 
-Tofu skin is the first layer that is lifted off from soy milk, it is eventrally be dried to a piece. Below the first layer, there still are some floaters, lift and hang them up for drying, then we get the yuba sticks.  
+Tofu skin is the first layer that is lifted off from soy milk, it is eventrally dried to a piece. Below the first layer, there still are some floaters, lift and hang them up for drying, then we get the yuba sticks.  
 
 ![Drying Yuba Sticks](yuba_sticks.jpeg)*Drying Yuba Sticks*
 
 
 
 Either tofu skin or yuba stick, they are all existing for about 500 years. As an agricultural nation, Chinese people are living on the soybean and its products.
+
+
+
+## Fermented Soy Products
+
+There are severial homely used fermented soy products, including soy sauce, soybean paste,  fermented bean curd and stinky tofu. They are all salt and served as condiment.
+
+### Soy sauce
+
+Soy sauce can take the place of salt and give off more complex flavour.  In Japaness diet, Sashimi must be dipped in soy sauce which is mixed with masabi to rich the taste. In northern China, dumplings are dipped in vinegar and soy sauce which is mixed with mashed garlic and sesame oil.  
+
+
+
