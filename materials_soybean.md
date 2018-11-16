@@ -49,9 +49,14 @@ Either tofu skin or yuba stick, they are all existing for about 500 years. As an
 
 There are severial homely used fermented soy products, including soy sauce, soybean paste,  fermented bean curd and stinky tofu. They are all salt and served as condiment.
 
-### Soy sauce
+### Soy Sauce
 
 Soy sauce can take the place of salt and give off more complex flavour.  In Japaness diet, Sashimi must be dipped in soy sauce which is mixed with masabi to rich the taste. In northern China, dumplings are dipped in vinegar and soy sauce which is mixed with mashed garlic and sesame oil.  
+
+![Soy Sauce](Soy_sauce.jpg)
+*Soy Sauce——riching the flavour and color of dishes*
+
+## Soybean Paste
 
 
 
