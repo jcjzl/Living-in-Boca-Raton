@@ -59,5 +59,21 @@ Soy sauce can take the place of salt and give off more complex flavour.  In Japa
 
 ### Soybean Paste
 
-I lived in country with my grandparents when I was a child. I still remember that there was a jar which was full of fermented soybean paste in the yard. From time to time grandma  stirred the paste with a stick during the period of fermenting and the paste gave off a special smell. Now I buy the bean paste from market but hardly meet the same smell.
+I lived in country with my grandparents when I was a child. I still remember that there was a jar which was full of fermented soybean paste in the yard. From time to time grandma  stirred the paste with a stick during the period of fermenting and the paste gave off a special smell. Many years later, I buy the bean paste from supermarket but I never meet the same smell again.
+
+
+
+My grandma made the soybean paste in the open air without fermentation bacteria, but in factory, the paste is made in room and the fermentation bacteria is necessary.
+
+
+
+In northern China, some uncooked fresh vegetables dipping in soybean paste is an everyday dish in summer.
+
+
+
+Like soy sauce, soybean paste can serve as salt when cooking  with rich flavour and temping reddish brown color. 
+
+![Braised croaker with soy sauce](paste-fish.jpg)*Braised croaker with soy sauce*
+
+
 
