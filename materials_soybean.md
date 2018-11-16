@@ -71,7 +71,7 @@ In northern China, some uncooked fresh vegetables dipping in soybean paste is an
 
 
 
-Like soy sauce, soybean paste can serve as salt when cooking  with rich flavour and temping reddish brown color. 
+Like soy sauce, soybean paste can serve as salt with rich flavour and temping reddish brown color. 
 
 ![Braised croaker with soy sauce](paste-fish.jpg)*Braised croaker with soy sauce*
 
