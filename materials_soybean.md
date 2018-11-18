@@ -6,7 +6,7 @@ Soybean is a gift of nature. It contains the complete protein that humen need. I
 
 In summer, the soybeans are grown up but not ripe for harvest, the round green beans stay in the green pod, it’s the good season to eat them. Boiling the pods with salt for about 15 minutes, then the beans are ready for eating. The green soybeans can also be cooked with other gradients such as shrimp meat or crued meat.
 
-![Green Soybean](/Users/roadlabs/Documents/GitHub/Living-in-Boca-Raton/greenSoybean.jpg)*Cooked Green Soybean*
+![Green Soybean](greenSoybean.jpg)*Cooked Green Soybean*
 
 ## Soybean sprout
 
