@@ -4,15 +4,21 @@ Soybean is a gift of nature. It contains the complete protein that humen need. I
 
 ## Green Soybean
 
-In summer, the soybeans are grown up but not ripe for harvest, the round green beans stay in the green pod, it’s the good season to eat them. Boiling the pods with salt for about 15 minutes, then the beans are ready for eating. The green soybeans can also be cooked with other gradients such as shrimp meat or crued meat.
+In summer, the soybeans are grown up but not ripe for harvest, the round green beans stay in the green pod, it’s the good season to eat them. Boiling the pods with salt for about 15 minutes, then the beans are ready for eating. The green soybeans can also be cooked with other ingredients such as shrimp meat or crued meat.
 
 ![Green Soybean](greenSoybean.jpg)*Cooked Green Soybean*
 
-## Soybean sprout
+## Soybean
 
-We can buy the ripe soybeans in supermarket, they are light yellow and dried. Before cooking they should be soaked in water for several hours till they don’t largen any more.
+We can buy the ripe soybeans in supermarket, they are light yellow and dried. Before cooking, they should be soaked in water for several hours till they don’t largen any more.
 
+Swollen soybeans can be boiled with salt and other condiments for a long or short time(at least 30 munites) as your taste, or like green soybeans, cooked with other ingredients.
 
+## Soybean Sprout
+
+Remove the swollen soybeans from water, put them in a ceramic or glass container and cover the wet soybeans with a wet cotton cloth. Everyday morning and evening, wash the beans and the cloth, after 3 to 5 days, you will get the soybean sprouts. Cooking soybean sprout is just like green soybean.    
+
+![Soybean Sprout](sprout.jpg)*Soybean Sprouts: growing for about 4 days*
 
 ## Tofu
 
