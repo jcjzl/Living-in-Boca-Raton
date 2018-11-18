@@ -16,7 +16,7 @@ Swollen soybeans can be boiled with salt and other condiments for a long or shor
 
 ## Soybean Sprout
 
-Remove the swollen soybeans from water, put them in a ceramic or glass container and cover the wet soybeans with a wet cotton cloth. Everyday morning and evening, wash the beans and the cloth, after 3 to 5 days, you will get the soybean sprouts. Cooking soybean sprout is just like green soybean.    
+Remove the swollen soybeans from water, put them in a ceramic or glass container and cover the wet soybeans with a wet cotton cloth. Everyday morning and evening, wash the beans and the cloth. After 3 to 5 days, you will get the soybean sprouts. Cooking soybean sprout is just like cooking green soybean.    
 
 ![Soybean Sprout](sprout.jpg)*Soybean Sprouts: growing for about 4 days*
 
