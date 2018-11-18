@@ -1,6 +1,16 @@
 # Materials of Chinese Food:Soybean and its Products
 
-Soybean is a gift of nature. It contains the complete protein. It can be made into many kinds of products to meet the needs of different people and different dishes. In China, common soybean products include tofu(豆腐), soy milk(豆浆), tofu skin(豆腐皮), soy sauce(酱油), soybean paste(豆酱), fermented bean curd(腐乳) and so on. They can be used as ingredient or served as condiment. 
+Soybean is a gift of nature. It contains the complete protein that humen need. It can be made into many kinds of products to meet the needs of different people and different dishes. In China, common soybean products include tofu(豆腐), soy milk(豆浆), tofu skin(豆腐皮), soy sauce(酱油), soybean paste(豆酱), fermented bean curd(腐乳) and so on. They can be used as ingredient or served as condiment. 
+
+## Green Soybean
+
+In summer, the soybeans are grown up but not ripe for harvest, the round green beans stay in the green pod, it’s the good season to eat them. Boiling the pods with salt for about 15 minutes, then the beans are ready for eating. The green soybeans can also be cooked with other gradients such as shrimp meat or crued meat.
+
+![Green Soybean](/Users/roadlabs/Documents/GitHub/Living-in-Boca-Raton/greenSoybean.jpg)*Cooked Green Soybean*
+
+## Soybean sprout
+
+We can buy the ripe soybeans in supermarket, they are light yellow and dried. Before cooking they should be soaked in water for several hours till they don’t largen any more.
 
 
 
