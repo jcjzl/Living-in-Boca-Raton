@@ -14,8 +14,13 @@ The refrigerator makes a lot of dried vegetables disappeared, the left ones are 
 
 ## Dried Bamboo Shoot
 
-Bamboo lives in southern China. 
+Bamboo lives in southern China. The underground newborn bamboo is very tender, it is a kind of traditional food which has 3000 years history.  
 
 ![Dried Bamboo Shoot](driedBambooShoot.jpeg)
 *Dried Bamboo Shoot*
 
+Fresh bamboo shoot can be steamed and air dried, dried bamboo shoot has some special flavours than the fresh and suit for cooking with meat. 
+
+
+
+Before cooking, dried bamboo shoot should be soaked in water for 1~2 days, then boiled with high fire for about 1~2 hours, then soaked in water again for 1~2 days by washing them twice a day avoiding rot. 
