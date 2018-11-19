@@ -19,7 +19,7 @@ Bamboo lives in southern China. The underground newborn bamboo is very tender, i
 ![Dried Bamboo Shoot](driedBambooShoot.jpeg)
 *Dried Bamboo Shoot*
 
-Fresh bamboo shoot can be steamed and air dried, dried bamboo shoot has some special flavours than the fresh and suit for cooking with meat. 
+Fresh bamboo shoot can be steamed and air dried, dried bamboo shoot has some special flavours than the fresh and suit for long hours cooking with meat. 
 
 
 
