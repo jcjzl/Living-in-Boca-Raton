@@ -8,3 +8,5 @@
 
 [Materials of Chinese Food:Soybean and Its Procudts](materials_soybean.md)
 
+[Materials of Chinese Food:Dried Vegetables](materials_DriedVegetables.md)
+
