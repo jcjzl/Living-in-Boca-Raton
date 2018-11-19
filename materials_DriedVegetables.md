@@ -8,3 +8,14 @@ But not all dried vegetables are made because of season. Actually dried vegetabl
 
 
 
+The refrigerator makes a lot of dried vegetables disappeared, the left ones are those which have special flavours.
+
+
+
+## Dried Bamboo Shoot
+
+Bamboo lives in southern China. 
+
+![Dried Bamboo Shoot](driedBambooShoot.jpeg)
+*Dried Bamboo Shoot*
+
