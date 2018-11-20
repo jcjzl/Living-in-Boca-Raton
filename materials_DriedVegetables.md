@@ -24,3 +24,25 @@ Fresh bamboo shoot can be steamed and air dried, dried bamboo shoot has some spe
 
 
 Before cooking, dried bamboo shoot should be soaked in water for 1~2 days, then boiled with high fire for about 1~2 hours, then soaked in water again for 1~2 days by washing them twice a day avoiding rot. 
+
+
+
+##  Daylily
+
+As a kind of food, daylily is the flower bud of daylily. Fresh daylily is toxic, it’s inedibility. Dried daylily is safe for eating. Before cooking, dried daylily should be soaked in water for an hour. Daylily is seldom cooked alone, it is usually cooked with meat or scrambled eggs. It’s an essential ingredient of a traditional dish named 木须肉(Moo Shu Pork).
+
+
+
+In Chinese cultrue, the daylily is also called Nepenthe, a kind of plant that can help getting rid of gloom. 
+
+![Fresh Daylily](freshDaylily.jpeg)*Fresh Daylily*
+
+
+
+![Dried Daylily](driedDaylily.jpeg)
+*Dried Daylily*
+
+
+
+
+
