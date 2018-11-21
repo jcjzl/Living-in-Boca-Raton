@@ -40,6 +40,8 @@ In Chinese cultrue, the daylily is also called Nepenthe, a kind of plant that ca
 
 
 ![Dried Daylily](driedDaylily.jpeg)
+
+
 *Dried Daylily*
 
 
