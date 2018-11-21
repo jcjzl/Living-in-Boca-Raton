@@ -48,7 +48,7 @@ In Chinese cultrue, the daylily is also called Nepenthe, a kind of plant that ca
 
 ## Dried Kelp
 
-Kelp is a kind of edible seaweed. Fresh kelp should be dried in the sun. We can buy the dried kelp in supermarket all over the world.    
+Kelp is a kind of edible seaweed. Fresh kelp should be dried in the sun. We can buy the dried kelp in supermarket(in China).    
 
 ![Dried Kelp](kelp1.png)*Dry the Kelp in the Sun*
 
@@ -58,6 +58,7 @@ Dried kelp shoule be soaked in water for a while till it’s getting soft, then 
 
 
 
-Before cooking, kelp should be cut into strip or flaky。
+Before cooking, kelp should be cut into strip or flaky, it can be cooked with meat, pork ribs, tofu, soybean, or used in salad.
 
-![Soup of Kelp and Tofu](kelpSoup.png)*Soup of Kelp and Tofu*
+![Soup of Kelp and Tofu](kelpSoup.png)*Soup of Kelp with Tofu*
+
