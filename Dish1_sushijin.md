@@ -34,3 +34,4 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
 
 ## Preparation
 
+1. Soaking: all ingredients except fried round gluten(item 2) should be soaked in water for about 12 hours(one night), then wash them out and remove the extra water.
