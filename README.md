@@ -10,3 +10,5 @@
 
 [Materials of Chinese Food:Dried Vegetables](materials_DriedVegetables.md)
 
+[First dish: 素什锦](Dish1_sushijin.md)
+
