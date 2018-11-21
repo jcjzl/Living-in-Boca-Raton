@@ -32,5 +32,5 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
 6. suger: 50~80g
 7. sesame oil: a little
 
-## preparation
+## Preparation
 
