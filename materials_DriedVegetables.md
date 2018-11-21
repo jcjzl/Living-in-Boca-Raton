@@ -44,5 +44,15 @@ In Chinese cultrue, the daylily is also called Nepenthe, a kind of plant that ca
 
 
 
+## Dried Kelp
 
+
+
+
+
+![Dried Kelp](kelp1.png)*Dry the Kelp in the Sun*
+
+
+
+![Soup of Kelp and Tofu](kelpSoup.jpg)*Soup of Kelp and Tofu*
 
