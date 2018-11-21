@@ -54,5 +54,4 @@ In Chinese cultrue, the daylily is also called Nepenthe, a kind of plant that ca
 
 
 
-![Soup of Kelp and Tofu](kelpSoup.jpg)*Soup of Kelp and Tofu*
-
+![Soup of Kelp and Tofu](kelpSoup.png)*Soup of Kelp and Tofu*
