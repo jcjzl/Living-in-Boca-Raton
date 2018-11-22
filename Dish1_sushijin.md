@@ -60,7 +60,7 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
 
 4. Cooking spade
 
-   For stiring the ingredients, you should have a handy cooking spade like this.
+   For stirring the ingredients, you should have a handy cooking spade like this.
 
    ![Cooking Spade](pot333.jpg)
    *Cooking Spade*
