@@ -40,6 +40,30 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
 
 2. Cut:
 
-   Some ingredients need to be cut so that every slice of cooked food can be easily picked up by chopsticks or fork and put into mouth all at once.  This is the priciple of cutting, actually you can cut them as your will and don’t mind these rules. 
+   Some ingredients need to be cut so that every slice of cooked food can be easily picked up by chopsticks or fork and put into mouth all at once.  This is the priciple of cutting, actually you can cut them as your will and don’t mind these rules. Any way I will give my advice:
 
-3. Pot
+   *  cut item1(dehydrated gluten) to blocks with the length about 2.5cm; 
+   * cut item2(round gluten) to two hemispheres;
+   * cut item3(shiitake) to slice;
+   * tear item4(wood ear) and item5(tremella) to suitable size;
+   * cut item6(yuba stick), item7(bamboo shoot) and item8(daylily) to segment with length about 2.5cm;
+   * remove the thin coat of item9(peanut), or let it be.
+
+   Otherwise, cut ginger to slice,  tear aniseed into little pieces. 
+
+3. Pan
+
+   Recommend to use cast iron frying pan with cover so that the ingredients can be stir easily and stew for a long hours.
+
+   ![Cast Iron Frying Pan with Cover](pot3.jpg)
+   *Cast Iron Frying Pan with Cover*
+
+4. Cooking spade
+
+   For stiring the ingredients, you should have a handy cooking spade like this.
+
+   ![Cooking Spade](pot333.jpg)
+   *Cooking Spade*
+
+5. 
+
