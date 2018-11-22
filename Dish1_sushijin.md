@@ -1,4 +1,4 @@
-# Chinese Dishes[1]: 素什锦
+# Chinese Dish[1]: 素什锦
 
 I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing its cooking process. 
 
@@ -29,7 +29,7 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
 3. ginger: a few pieces
 4. rice wine: 50g
 5. soy sauce: 80~100g
-6. suger: 50~80g
+6. sugar: 50~80g
 7. sesame oil: a little
 
 ## Preparation
@@ -65,4 +65,21 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
    ![Cooking Spade](pot333.jpg)  
    *Cooking Spade*
 
-5. 
+5. Some boiling water, pehaps 1~2L.
+
+## Cooking
+
+1. Heating the pan till more than 100℃,  add olive oil;
+2. Heating the oil till more than 100℃, add aniseed and ginger;
+3. Watch the bubbles rising from the ginger, a minute later, add the item1(dehydrated gluten);
+4. Spread out the gluten blocks so that every block can close to the bottom of pan, fry the gluten until it’s one or two sides getting golden yellow, i.e. getting hard;
+5. Add all of other ingredients into the pan, stir and mix them until they are heated;
+6. Add rice wine, go on stirring and smelling until they are mixed; 
+7. Add soy sauce and sugar, go on stirring until mixed;
+8. Add the boiling water till the ingredients are submerged by water;
+9. When the water boils again, stew the mixture with soft fire for about 2 hours, from time to time, stirring the mixture and insuring that the water is not dry;
+10. Switch to high fire to dry the extra water(soup), turn off fire, pour the sesame oil around the side of pan, then stir to mix them well.
+
+
+
+You can cook this dish with more amount of ingredient, or more kinds of ingredients at your will, then store them in refrigerator. You should eat them out in one week.
