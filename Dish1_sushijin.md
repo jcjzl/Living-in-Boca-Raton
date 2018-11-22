@@ -10,6 +10,8 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
 
 什锦 is a word with two Chinese characters, it means some different things mixed together. It can be used as a noun, like 素什锦, means some non-animal food getting together. It also can be used as a adjective, such as 什锦糖果(assorted candy), means many kinds of candy getting together.
 
+![素什锦](sushijin.jpg)
+
 ##  Ingredient
 
 1. Dehydrated gluten: 200g
