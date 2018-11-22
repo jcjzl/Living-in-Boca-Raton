@@ -38,8 +38,8 @@ I beg leave to explain the dish name 素什锦(su4 shi2 jin3) before describing 
 
    All ingredients except fried round gluten(item2) should be soaked in water for about 12 hours(one night), then wash them out and remove the extra water.
 
-2. Cut
+2. Cut:
 
-3. Some ingredients need to be cut so that every slice of cooked food can be easily picked up by chopsticks or fork and put into mouth all at once.  This is the priciple of cutting, actually you can cut them as your will and don’t mind these rules. 
+   Some ingredients need to be cut so that every slice of cooked food can be easily picked up by chopsticks or fork and put into mouth all at once.  This is the priciple of cutting, actually you can cut them as your will and don’t mind these rules. 
 
-4. Pot
+3. Pot
